@@ -1,2 +1,1 @@
-# MaddalaPraharshini.github.io
-My WebSite
+# Hi I'm Praharshini
